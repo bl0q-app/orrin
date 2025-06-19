@@ -1,4 +1,4 @@
-![Orrin Logo](https://ucarecdn.com/1af08213-46bc-4e8e-9421-8735c2adc151/-/format/auto/-/quality/best/-/progressive/yes/)
+![Orrin Logo](https://ucarecdn.com/e27e0a8e-8771-4c5d-aa4d-82b0ba5904cd/-/format/auto/-/quality/best/-/progressive/yes/)
 
 # **Orrin Interactive** – Worlds of Movement and Meaning
 
